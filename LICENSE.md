@@ -1,4 +1,4 @@
-# 
+# Cubase for PC | Cubase for Windows updated Script: sampler & project-templates offers the most advanced Cubase for PC | Cubase for Windows script, with sampler and
 
 
 
